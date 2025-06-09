@@ -1,1 +1,6 @@
-# asasasasasadi
+Vicente Assadi Pulido
+21.455.873-4
+Banco Bci
+Cuenta Corriente
+vicente.assadi@caiuc.cl
+32689471
